@@ -1,1 +1,1 @@
-# shamiwedsshana.github.io
+# Wedding Landing Page - Shameer & Shana
